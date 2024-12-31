@@ -1,5 +1,5 @@
 @mygodsei
-Onterested in gaming / coding
+Interested in gaming / coding
 I’m currently learning C / C++ / Java / Python
 minecraft98006@gmail.com
 Pronouns: He/Him
